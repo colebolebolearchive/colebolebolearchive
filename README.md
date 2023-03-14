@@ -1,3 +1,4 @@
 yo, welcome to my profile, i like making random stuff and uploading it onto here!
 
-![cowoncrack](https://user-images.githubusercontent.com/88512222/225104586-73e3b528-d9a4-4220-882a-3cdaa3fcd0a3.png)
+![image](https://user-images.githubusercontent.com/88512222/225105052-4101b1dd-dace-4102-8858-578e8d2f4540.png)
+
