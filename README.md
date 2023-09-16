@@ -1,4 +1,4 @@
-yo, welcome to my profile, i like making random stuff and uploading it onto here!
+yo, welcome to my profile, i mainly use python (with chat gpt, i cant code for shit) 
 
 # Stats
 
